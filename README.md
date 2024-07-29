@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ransomware-owner as Reyhan Jr.
+- Contact me organization.owner@gmail.com
